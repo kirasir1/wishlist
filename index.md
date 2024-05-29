@@ -6,7 +6,7 @@
 - Плюшевая Фрирен, 75 сантиметров. Выглядит вот так: ![image](https://github.com/kirasir1/wishlist/assets/13931629/180106e3-e532-486b-b6de-984830e9b039) Есть на [Озоне](https://www.ozon.ru/product/anime-myagkaya-igrushka-provozhayushchaya-v-posledniy-put-friren-friren-75-sm-frieren-beyond-1584926075)
 - Манга "Ецуба!": мне осталось собрать главы __4, 7 и 8__.
 - Футболки: на ваш вайб. Размер 2XL бтв
-- Всякие прикольчики по мелочи
+- Всякие угарное по мелочи
 ## Электронное
 - Подписка на TryHackMe
 - Spotify Premium (Индия)
