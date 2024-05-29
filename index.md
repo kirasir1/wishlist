@@ -4,7 +4,7 @@
 **ДАЙТЕ ДЕНЯК!** На ближайшие полгода (а то и больше) траты распланированы так, что мой кошелек нескудно опустошится.
 ## Вещественное
 - Плюшевая Фрирен, 75 сантиметров. Выглядит вот так: ![image](https://github.com/kirasir1/wishlist/assets/13931629/180106e3-e532-486b-b6de-984830e9b039) Есть на [Озоне](https://www.ozon.ru/product/anime-myagkaya-igrushka-provozhayushchaya-v-posledniy-put-friren-friren-75-sm-frieren-beyond-1584926075)
-- мику (именно такая) ![Без имени](https://github.com/kirasir1/wishlist/assets/13931629/3de1c2c7-c507-4ca1-a582-763c8bc12af0)
+- мику (именно такая) ![image](https://cdn.store-assets.com/s/180628/i/13157762.jpeg?width=1024)
 - Манга "Ецуба!": мне осталось собрать главы __4, 7 и 8__.
 - Футболки: на ваш вайб. Размер 2XL бтв
 - Всякое угарное (фигурки, значки, просто смешное)
