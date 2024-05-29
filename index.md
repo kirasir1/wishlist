@@ -5,7 +5,7 @@
 ## Вещественное
 - Плюшевая Фрирен, 75 сантиметров. Выглядит вот так: ![image](https://github.com/kirasir1/wishlist/assets/13931629/180106e3-e532-486b-b6de-984830e9b039) Есть на [Озоне](https://www.ozon.ru/product/anime-myagkaya-igrushka-provozhayushchaya-v-posledniy-put-friren-friren-75-sm-frieren-beyond-1584926075)
 - мику (именно такая) ![image](https://cdn.store-assets.com/s/180628/i/13157762.jpeg?width=1024)
-- Манга "Ецуба!": мне осталось собрать главы __4, 7 и 8__.
+- Манга "Ецуба!": мне осталось собрать главы __6 и 8__.
 - Футболки: на ваш вайб. Размер 2XL бтв
 - Всякое угарное (фигурки, значки, просто смешное)
 - Не угарное тоже можно! Очень давно ищу винил Volga от Cream Soda и 2Ruff от Chase & Status. Да и в целом подобные музыкальные подарки меня обрадуют.
